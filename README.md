@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Usmanganteng
-- 👀 I’m interested in TDK-3000
+- 👀 I’m interested in TRK-3000
 - 🌱 I’m currently learning Android studio
 - 💞️ I’m looking to collaborate on TOK Dalang aka Isnin bin Khamis
 - 📫 How to reach me Bro
