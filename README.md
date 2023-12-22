@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Usmanganteng
+- 👋 Hi, I’m @LUcian666
 - 👀 I’m interested in TRK-3000
 - 🌱 I’m currently learning Android studio
 - 💞️ I’m looking to collaborate on TOK Dalang aka Isnin bin Khamis
